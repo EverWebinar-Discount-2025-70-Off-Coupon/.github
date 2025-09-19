@@ -6,6 +6,11 @@ If you’ve been holding back because of the cost, you’re not alone. I was the
 
 I’ve spent the past few weeks testing the platform, digging into the pricing structure and reviewing the deals. This guide shares what I found, along with my own experience of running webinars through EverWebinar.  
 
+**Note:** Sign up for a free trial and use coupon code **"[MAXZOB30](https://try.kartra.com/dp3hwg80pns7-5vhtfj)" to get 30% off your annual plan**. Just apply the code during sign-up and your discount will be automatically applied.
+
+<img width="1920" height="1032" alt="everwebinar discount code" src="https://github.com/user-attachments/assets/e45422c8-9b62-4efa-ae9e-4816ac2886f8" />
+
+
 [![Everwebinar discount](https://buddyforhelp.com/wp-content/uploads/2025/04/everwebinar-discount.png)](https://try.kartra.com/dp3hwg80pns7-5vhtfj)
 
 ---
@@ -75,7 +80,7 @@ Try it out now and see what EverWebinar can do for you.
 
 ## Claiming Your Discount – Step-By-Step
 
-1. Visit [EverWebinar’s official pricing page](https://www.everwebinar.com).  
+1. Visit [EverWebinar’s official pricing page](https://try.kartra.com/dp3hwg80pns7-5vhtfj).  
 2. Choose your plan: monthly, annual or biennial.  
 3. Create account & fill billing details.  
 4. Confirm price before paying — $499/year or $874/2 years. No code required.  
