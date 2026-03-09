@@ -10,19 +10,15 @@ I’ve spent the past few weeks testing the platform, digging into the pricing s
 
 <img width="1920" height="1032" alt="everwebinar discount code" src="https://github.com/user-attachments/assets/e45422c8-9b62-4efa-ae9e-4816ac2886f8" />
 
-
-[![Everwebinar discount](https://buddyforhelp.com/wp-content/uploads/2025/04/everwebinar-discount.png)](https://try.kartra.com/dp3hwg80pns7-5vhtfj)
+[![Everwebinar discount](https://github.com/user-attachments/assets/fe7e7a58-639b-41c8-b035-4a3c19740b68)](https://try.kartra.com/dp3hwg80pns7-5vhtfj)
 
 ---
-
-### [Grab Everwebinar Discount Now!!](https://try.kartra.com/dp3hwg80pns7-5vhtfj)
-
 ## Latest EverWebinar Discount & Deals March 2026
 
 Ready to level up your business presentations?
 Now’s the time! EverWebinar is offering huge discounts — up to **63% off** and **free trials** and demos.
 
-[![Everwebinar coupon code](https://buddyforhelp.com/wp-content/uploads/2025/04/everwebinar-coupon-code.png)](https://try.kartra.com/dp3hwg80pns7-5vhtfj)
+[![Everwebinar coupon code](https://github.com/user-attachments/assets/fe7e7a58-639b-41c8-b035-4a3c19740b68)](https://try.kartra.com/dp3hwg80pns7-5vhtfj)
 
 ### [Grab Everwebinar Discount Now!!](https://try.kartra.com/dp3hwg80pns7-5vhtfj)
 
